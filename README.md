@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning different coding languages and it is not easy haha
 - 💞️ I’m looking to collaborate on various projects in the West Midlands UK
 - 📫 How to reach me: here?
-- 😄 Pronouns: the old Female will do
+- 😄 Pronouns: Female/Wowman/Girl/Her/She? 
 - ⚡ Fun fact: I'm a dental nurse working in Ortho only!
 
 <!---
